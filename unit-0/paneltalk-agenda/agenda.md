@@ -1,3 +1,3 @@
 Agenda
 
-Agenda & directions for the January induction event
+Agenda & directions for the September induction event

@@ -1,2 +1,2 @@
-# Workshop 1 & 3
+# Workshop 1
 
